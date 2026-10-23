@@ -1,7 +1,7 @@
 # read
 
 hi
-traffic cone/traffic/artemis/skateboard
+bisquekit/artemis/skateboard
 im a system no im not diagnosed no i dont want a label no i dont wanna be included in syscourse ok bye
 
 kinda dry most of the time but i try to express myself
